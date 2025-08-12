@@ -2,7 +2,9 @@
 
 ## About Me
 
-I so exciting for this experiences 🌟 Trying to become a better person every day ☀️ 
+🌟 I so exciting for this experiences 
+</br>
+☀️ Trying to become a better person every day 
 </br>
 ⌛ I enjoy personal development and productivity.
 </br>
